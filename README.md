@@ -1,0 +1,1 @@
+# Magnitude-6-Earthquake
